@@ -1,1 +1,0 @@
-# rikyuuuutvuy6r
